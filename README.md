@@ -1,4 +1,4 @@
-# Hi, I'm Olamilekan 👋
+# Hi, I'm Oluwapheezo 👋
 
 ### Independent Frontend Developer | Nigeria 🇳🇬
 
